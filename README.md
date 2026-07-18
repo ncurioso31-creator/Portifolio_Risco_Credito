@@ -1,4 +1,4 @@
-### 📊 Principais Insights de Negócio
+
 
 **Renda: O Poder Aquisitivo como Critério Principal de Aprovação**
 
